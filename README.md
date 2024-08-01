@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming, movies, and music
 - 🌱 I’m currently learning everything around web development
 - 💞️ I’m looking to collaborate on --- nothing at the moment!
-- 📫 How to reach me amaremini5@icloud.com
+- 📫 How to reach me: hello@amaremini.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm not a penguin
 
